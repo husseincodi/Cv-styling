@@ -2,7 +2,7 @@
 ![CV](download.jpeg)
 
 ### Contact Info:
-- Phone : 76466624
+- Phone : 76466624565
 - Email : hussein_seifeldine@outlook.com
 
 ## Skills
